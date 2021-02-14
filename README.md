@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dndsza
+- aspirante a programador
